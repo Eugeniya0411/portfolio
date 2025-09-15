@@ -45,5 +45,6 @@
 ---
 
 ## 📬 Контакты
+- Телефон: *89059744794*
 - Email: *lebedyata@yandex.ru*  
 - Telegram: *@lebedyata0411*
